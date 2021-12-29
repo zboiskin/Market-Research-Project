@@ -10,5 +10,5 @@ the influence that entertainment content could play in the differentiation of Op
 with regards to the target group being 18 to 24 year olds in Australia. A research question was
 formulated in order to complete this assignment:
 “How can Optus use the service of entertainment to improve their products and gain a
-competitive advantage over rival companies in the market of 1824
+competitive advantage over rival companies in the market of 18 - 24
 year olds?”
